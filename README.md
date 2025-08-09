@@ -1,0 +1,1 @@
+# Tistory-Covenant-Static
